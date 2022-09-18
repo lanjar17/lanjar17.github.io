@@ -4,8 +4,8 @@ Website for Desain Web
 
 - 🔭 I’m currently working at @Toptal
 - 🤔 I’m looking for help with Outstanding Video ideas.
-- 📫 How to reach me: islempenywis@gmail.com.
-- 😄 Pronouns: CoderOne, Ipenywis, islempenywis.
+- 📫 How to reach me: lanjar17@gmail.com.
+- 😄 Pronouns: Example, Example, Example.
 - ⚡ Fun fact: I play games and go to the GYM very often.
 
 
